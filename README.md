@@ -1,16 +1,4 @@
-
-                                                                                            ![alt text](download.jpg)
-
-
-
-
-
-
-
-
-
-
-
+![alt text](download.jpg)
 
 
 ## Contact Information
